@@ -1,1 +1,0 @@
-# mecomputingproggramming-pay
